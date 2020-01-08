@@ -1,1 +1,0 @@
-# SingTel-Assignment
